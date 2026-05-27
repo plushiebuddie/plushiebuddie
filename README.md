@@ -5,5 +5,5 @@
   <img src="https://i.postimg.cc/HLm90vQg/x-(1).webp" alt="NSH and his weird dog">
 </p>
 <p align="center">i love ripping code off other people, im so original <3
-<p align="center">oh also i do art commissions, check my toyhouse <a href="https://toyhou.se/Plushie_Buddie">here</a> and my comms page <a href="https://toyhou.se/37924912.sigs-robux-comms-open">here</a>
+<p align="center">oh also i do art commissions, check my toyhouse <a href="https://toyhou.se/Plushie_Buddie">here</a> and my comms page <a href="https://toyhou.se/~forums/71.art-marketplace/800173.510-steam-gift-card-comms">here</a>
 <p align="center">anybody without toyhouse can contact me directly @ plushie_buddie on discord!
