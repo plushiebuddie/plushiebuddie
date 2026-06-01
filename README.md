@@ -1,7 +1,7 @@
 <p align="center">Hihi, I'm Sig!
 <p align="center">He/They | 17 | existing tbh
 <p align="center">I'm typically on PT for funsies in cosplay. I'm a roleplayer and relatively shy fella, but totally open to chat about fandom nonsense! I'm into Rain World and Hollow Knight (Silksong) currently, so feel free to whisper or come up to me to talk about them!!! Apologies in advance if I'm a little awkward, I don't socialize often.
-<p align="center">im cringe and free
+<p align="center"><br>im cringe and free
   <img src="https://i.postimg.cc/HLm90vQg/x-(1).webp" alt="NSH and his weird dog">
 </p>
 <p align="center">i love ripping code off other people, im so original <3
